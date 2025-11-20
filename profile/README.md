@@ -25,6 +25,10 @@ Interested in joining? We welcome brewers of all experience levels! Visit our we
 - Upcoming events
 - Club resources and benefits
 
+membership? Our favorite brewery in the area? Contact us with any questions you might have. Would love to hear from you!
+
+We have members from many areas in DFW, ranging from Arlington, Burleson, and Denton. 
+
 ## Get Involved
 
 Whether you're looking to improve your brewing skills, share your creations, or simply connect with fellow beer enthusiasts, Horsemen of the Hops is the place for you. Join us and become part of our brewing community!
